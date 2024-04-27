@@ -2,7 +2,7 @@
 - 👀 I am interested in football
 - 🌱 I'm currently learning java backend
 - 💞️ I want to cooperate with Amazon
-- 📫 How to contact me sahibjonnorboboyev@gmail.com
+- 📫 How to contact me sohibjonnorboboyev@gmail.com
 - 😄 pronouns: ____
 - ⚡ Fun fact: This is all we have🤷‍♂️. No one is perfect.
 
